@@ -85,7 +85,7 @@ Created an interactive dashboard with the following features:
 
 ## 📬 Contact  
 *Sonia Saini*  
-[LinkedIn](https://www.linkedin.com/in/sonia-saini-data)  
+[LinkedIn](http://www.linkedin.com/in/sonia-saini2004)  
 
 
 
